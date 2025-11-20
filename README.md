@@ -1,1 +1,0 @@
-# ikonmo-kel
